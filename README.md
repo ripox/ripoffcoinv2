@@ -1,4 +1,4 @@
-Ripoff Coin v2 - Because crypto makes no fucking sense!
+Ripoff Coin v2 - Because crypto makes no sense!
 ===============================
 
 http://ripoffcoin.com/
@@ -7,7 +7,7 @@ http://ripoffcoin.com/
 What is Ripoff Coin?
 ----------------
 
-Still not getting rich over night?, damn it! You've not learned a single thing and youíre still bagholding coins that are obvious scams?, even after we have tried to educate you? Think pump and dump is some kind of colon cleanser? Itís 2017 and you still assume some anonymous ìdevsî posting on Bitcointalk are ìdevsî that can code and aren't the same "devs" that scammed you last time? We can help! Join the community where you know it's really gonna hurt. RipoffCoin. It's 100% transparent, we're gonna try to Rip you Off! 
+Still not getting rich over night?, damn it! You've not learned a single thing and you‚Äôre still bagholding coins that are obvious scams?, even after we have tried to educate you? Think pump and dump is some kind of colon cleanser? It‚Äôs 2017 and you still assume some anonymous ‚Äúdevs‚Äù posting on Bitcointalk are ‚Äúdevs‚Äù that can code and aren't the same "devs" that scammed you last time? We can help! Join the community where you know it's really gonna hurt. RipoffCoin. It's 100% transparent, we're gonna try to Rip you Off! 
 
 Enjoy this experience, again!
 
